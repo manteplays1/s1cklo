@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @s1cklo
+- 👋 Hi, I’m Huh0
 - 🌱 I’m currently learning Coding
 - 📫 Reach me on discord: Huh0#4740 
 
